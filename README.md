@@ -1,5 +1,3 @@
-# notebooks
-
 В пути:
 Прибытие ~ конец июня - июль:
 Dell Latitude 7490 14" FHD IPS I7-8650U
