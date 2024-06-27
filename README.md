@@ -3,6 +3,7 @@
 Dell Latitude 7490 14" FHD IPS I7-8650U/16GB
 Dell Latitude 7420 Aluminium 14" FHD IPS I5-1145G7/16GB
 Dell Latitude 7420 Aluminium 2-in-1 14" FHD IPS сенсорный I5-1145G7/16GB
+
 Прибытие ~ конец июля:
 Dell Latitude 7490 14" FHD IPS I7-8650U/16GB
 Dell Latitude 7490 14" FHD IPS I7-8650U/16GB
