@@ -15,5 +15,8 @@
 -------
 
 - Прибытие ~ сентябрь:
-  
+
+14" Dell Latitude 5420 FHD IPS I5-1145G7/16GB/1024GB
+14" Dell Latitude 5420 FHD IPS I5-1145G7/16GB/512GB
+14" Dell Latitude 7420 2-in-1 Сенсорный Металл FHD IPS I7-1145G7/32GB/1024GB
 
