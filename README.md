@@ -1,22 +1,14 @@
+обновлено 15.11.2024
 ----------
 В наличии:  
 ----------
 
-15.6" Dell Latitude 5520 FHD IPS I5-1145G7/16GB/512GB
-15.6" Dell Latitude 5520 FHD IPS I5-1145G7/16GB/512GB
-14" Dell Latitude 7490 FHD IPS I7-8650U/16GB/512GB
-15.6" Dell Latitude 5590 FHD IPS I5-8250U/16GB/512GB
-15.6" Dell Latitude 5590 FHD IPS I5-8250U/16GB/512GB
-14" Dell Latitude 5420 FHD IPS I5-1145G7/16GB/1024GB
-14" Dell Latitude 7420 FHD IPS I5-1145G7/16GB/512GB
+114" Dell Latitude 7490 FHD IPS I5-8250U/16GB/512GB - 30000 (трещина на защитном стекле камеры, сама камера работает и показывает нормально)
+15.6" Dell Latitude 5590 FHD IPS I5-8250U/16GB/512GB - 32000
+15.6" Dell Latitude 5590 FHD IPS I5-8350U/16GB/512GB - 31000 (небольшое светлое пятно на экране, заметно только на светлом фоне)
+15.6" Dell Latitude 5591 FHD IPS I5-8400H/16GB/512GB - 34000
+14" Dell Latitude 5520 FHD IPS I5-1145G7/16GB/1024GB - 37000
 
 -------
 В пути:
 -------
-
-- Прибытие ~ сентябрь:
-
-14" Dell Latitude 5420 FHD IPS I5-1145G7/16GB/1024GB
-14" Dell Latitude 5420 FHD IPS I5-1145G7/16GB/512GB
-14" Dell Latitude 7420 2-in-1 Сенсорный Металл FHD IPS I7-1145G7/32GB/1024GB
-
